@@ -1,5 +1,5 @@
 # [Digital Humanities Today: Critical Inquiry with and about the Digital](https://kcldigitalconference.com/)
-
+23-26 June 2026, King's College, London
 
 <br>
 
